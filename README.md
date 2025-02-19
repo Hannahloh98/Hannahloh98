@@ -35,7 +35,7 @@ AI/ML projects with practical applications\
 Cloud-based solutions\
 Open source initiatives in the financial tech space
 
-📫** How to Reach Me**\
+📫**How to Reach Me**\
 Email: [hannahloh16@gmail.com](mailto:hannahloh16@gmail.com)\
 LinkedIn: [Hannah Loh](https://www.linkedin.com/in/HannahLoh)
 
