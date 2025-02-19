@@ -1,4 +1,4 @@
-**Hi there! I'm Hannah Loh **👋
+**Hi there! I'm Hannah Loh**👋
 
 ✨**About Me**
 IT professional with 4+ years of experience in the financial sector, now pursuing an AI-focused career path through Gamuda AI Academy and a part-time Master's in AI. I combine strong technical skills with business acumen to deliver innovative solutions for complex challenges.
